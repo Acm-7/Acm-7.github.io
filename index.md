@@ -3,5 +3,5 @@
 1. I am a veteran, I did four years active duty in the army.
 2. Cybersecurity is a career change for me, all my prior expirience is predominantly medical.
 3. I really enjoy fitness, all sports (especially playoffs), and snowboarding.
-4. that is all for now, if I become more fun, you will be the first to know. 
+4. That is all for now, if I become more fun, you will be the first to know. 
 
